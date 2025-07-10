@@ -5,7 +5,7 @@
 
 𓆩 𓆪
 
-main account was locked so excuse random follows 
+main account was locked so excuse random follows (also bc im stalking my bfs following)
 
 𓆩 𓆪
 
