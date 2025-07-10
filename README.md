@@ -11,4 +11,5 @@ main account was locked so excuse random follows
 
 i love you aku & pinkie my best friends 4ever
 
-![image](https://github.com/sinistereagle/sinistereagle/blob/3654f1319084fcb298c49441ad01fac03d88513f/4b2e0b032e435b8a6a7016eb48ed11ed.jpg)
+
+![image](https://github.com/sinistereagle/sinistereagle/blob/fb1f6a5a7d6f9a734232c3213b86b47bb780fe48/Screenshot_262.png)
