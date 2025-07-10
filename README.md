@@ -1,4 +1,4 @@
-17 ✘ emo + married to @vampiriaku
+17 ✘ emo & taken 
 
 𓆩 𓆪
 
