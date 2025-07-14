@@ -1,15 +1,10 @@
-![image](https://github.com/sinistereagle/sinistereagle/blob/3654f1319084fcb298c49441ad01fac03d88513f/48398d3276af84ac61d40c9b956fe448.jpg)
+17 + taken ؛༊
 
- 
- emo ✘ taken 
+⏾
 
-𓆩 𓆪
+rarely on ponytown but when i am i'm normally in mha or bsd 
 
-main account was locked so excuse random follows (also bc im stalking my bfs following)
+⏾
 
-𓆩 𓆪
+please do not involve me with drama(within reason) or complain to me if my bf annoys you. these are YOUR issues, not mine
 
-i love you aku & pinkie my best friends 4ever
-
-
-![image](https://github.com/sinistereagle/sinistereagle/blob/fb1f6a5a7d6f9a734232c3213b86b47bb780fe48/Screenshot_262.png)
