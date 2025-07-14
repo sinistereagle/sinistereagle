@@ -6,5 +6,5 @@ rarely on ponytown but when i am i'm normally in mha or bsd
 
 ⏾
 
-please do not involve me with drama(within reason) or complain to me if my bf annoys you. these are YOUR issues, not mine
+please don't involve me with drama(within reason) or complain to me about my bf/friends . these are your issues, not mine
 
