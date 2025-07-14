@@ -2,7 +2,7 @@
 
 ⏾
 
-rarely on ponytown but when i am i'm normally in kny or bsd 
+rarely on ponytown but when i am i'm normally in jjk or bsd 
 
 ⏾
 
